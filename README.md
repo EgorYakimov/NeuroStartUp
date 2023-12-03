@@ -1,1 +1,1 @@
-Hello, Wordl!# NeuroStartUp
+Hello, Wordl!
